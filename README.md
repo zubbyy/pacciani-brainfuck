@@ -16,5 +16,5 @@ e il mondo ne sarebbe assai più bello
 ### Who was Pietro Pacciani?
 Pietro pacciani was an italian serial killer
 who is the most famous perpetrator of the ["Mostro di firenze"](https://en.wikipedia.org/wiki/Monster_of_Florence) media case.
-His character has gone viral as a meme due to being extremely out of context during court interrogations.
+His character has gone viral as a meme due to being extremely out of context during court interrogations(when he got asked about some homicides he supposedly committed, he answered with this poetry ([check it out](https://www.youtube.com/watch?v=BNyiQyOz_8g)).
 Take note that his actions are inhuman and it should be viewed as such.
